@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning stuff.
 - 💞️ I’m looking to collaborate on making a mod for Opera Gaming browser
 - 📫 How to reach me: Discord Server
-Discord Server: furry logik
+- Discord Server: furry logik
